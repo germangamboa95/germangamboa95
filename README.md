@@ -5,3 +5,4 @@ Orlando based software developer. Expert waffler at meetup talks. Alledgedly a l
 # Social Proof 
 
 > 5/7 : best :shit:poster in central florida - Jean Karlo V.
+> A++ would work with again. Spicy and delicious. - Lee Warrick
