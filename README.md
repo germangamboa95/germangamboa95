@@ -1,3 +1,3 @@
 # About German  
 
-Orlando based software developer. Expert waffler at meetup talks. Alledgedly a laravel expert. Frontend hater. RestAPIs all day everyday. 
+Orlando based software developer. Expert waffler at meetup talks.
